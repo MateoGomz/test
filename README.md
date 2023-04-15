@@ -1,1 +1,1 @@
-Truelove. this is my way to be rich
+this is my way to be rich
